@@ -1,2 +1,1 @@
-# specialized-software-development-company-java-backend
-Specialized software development company [java backend]
+# Wise usage of information technology theories in a modern civilized society
