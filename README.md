@@ -2,6 +2,8 @@
 
 #### Please visit the wiki for more info https://github.com/muhamed-hassan/specialized-software-development-company-java-backend/wiki
 
+**`Mandatory educational level in software-development-unit`** [bachelor degree](https://en.wikipedia.org/wiki/Bachelor%27s_degree) from accredited governmental universities not as uneducated whores and fagots as the case globally.
+
 ## Extras:
 * [Construction of `Internal IT Unit`](https://github.com/muhamed-hassan/internal-it-unit)
 * [Specialized software development company C# backend](https://github.com/muhamed-hassan/specialized-software-development-company-java-backend/wiki/Extras)
