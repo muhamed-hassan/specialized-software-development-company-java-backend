@@ -1,3 +1,7 @@
+![giphy](https://github.com/muhamed-hassan/specialized-software-development-company-java-backend/assets/17825804/411c8618-ad8c-4308-ab0f-4d225a5c8b33)
+
+***
+
 ## Wise usage of information technology theories in a modern civilized society
 
 #### Please visit the wiki for more info https://github.com/muhamed-hassan/specialized-software-development-company-java-backend/wiki
