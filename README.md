@@ -6,7 +6,12 @@
 
 #### Please visit the wiki for more info https://github.com/muhamed-hassan/specialized-software-development-company-java-backend/wiki
 
-**`Mandatory educational level in software-development-unit`** [bachelor degree](https://en.wikipedia.org/wiki/Bachelor%27s_degree) from accredited governmental universities not as uneducated whores and fagots as the case globally.
+**`Mandatory educational level`** [bachelor degree](https://en.wikipedia.org/wiki/Bachelor%27s_degree) from accredited governmental universities not as uneducated whores and fagots as the case globally.
+* Software development unit within the below types:
+  - [Specialized software development company Java backend](https://github.com/muhamed-hassan/specialized-software-development-company-java-backend/wiki)
+  - [Specialized software development company C# backend](https://github.com/muhamed-hassan/specialized-software-development-company-java-backend/wiki/Extras)
+  - [Specialized software development company in C++](https://github.com/muhamed-hassan/specialized-software-development-company-java-backend/wiki/Extras-1)
+* [Internal IT Unit](https://github.com/muhamed-hassan/internal-it-unit)
 
 ## Extras:
 * [Construction of `Internal IT Unit`](https://github.com/muhamed-hassan/internal-it-unit)
