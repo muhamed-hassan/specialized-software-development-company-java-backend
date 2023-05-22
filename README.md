@@ -29,3 +29,7 @@
 ***
 
 ![organizational-structure-elements](https://user-images.githubusercontent.com/17825804/219615213-db612b50-3b47-4320-9043-419e72b95302.png)
+
+***
+
+[`**Current status`**](https://www.youtube.com/watch?v=EgjECcUip7o) due to existing bullshit.
