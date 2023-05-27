@@ -1,4 +1,4 @@
-![giphy](https://github.com/muhamed-hassan/specialized-software-development-company-java-backend/assets/17825804/411c8618-ad8c-4308-ab0f-4d225a5c8b33)
+![giphy](https://github.com/muhamed-hassan/specialized-software-development-company-java-backend/assets/17825804/de7cf879-3eea-424c-b83f-76a2dba5f1bc)
 
 ![giphy](https://github.com/muhamed-hassan/specialized-software-development-company-java-backend/assets/17825804/a438c1e0-dd61-4994-960a-67dd23d173ee)
 
