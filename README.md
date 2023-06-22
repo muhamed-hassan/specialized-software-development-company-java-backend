@@ -10,7 +10,7 @@
 
 **`Mandatory educational level`** [bachelor degree](https://en.wikipedia.org/wiki/Bachelor%27s_degree) from accredited governmental universities not as uneducated whores and fagots as the case globally.
 
-An `economical entity` that will be established in the future to provide the below functions to the society per country, maybe after 1,000 years or so because of the current mother fuckers globally who do not know how to have a shower properly, shall be named as **`Information Technology Association`** under the supervision of the newly established and on-the-clean-process "**Information Technology Ministry**"
+`Economical entities` that will be established in the future to provide the below functions to the society per country, maybe after 1,000 years or so because of the current mother fuckers globally who do not know how to have a shower properly, shall be named as **`Information Technology Association`** under the supervision of the newly established and on-the-clean-process "**Information Technology Ministry**"
 
 * Software development unit within the below types:
   - [Specialized software development company Java backend](https://github.com/muhamed-hassan/specialized-software-development-company-java-backend/wiki)
