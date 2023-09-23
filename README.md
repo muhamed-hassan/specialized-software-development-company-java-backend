@@ -37,3 +37,22 @@
 ***
 
 # [`Current status`](https://www.youtube.com/watch?v=EgjECcUip7o) due to existing bullshit.
+
+***
+***
+
+هناك مقولة ترددها داعش على كلابها وهم رجال الأعمال بكافة الجنسيات: "أن التجارة بها تسع أعشار الرزق". كيف ذلك وهم سارقين لاموال الدول واراضيها ومرافقها ويتجاهلون على الناس ويبخسونهم أشيائهم ويفرضون أرائهم بقوتهم المزيفة (السحر الاسود) وليس بناء على علم صحيح خاضع للنقاش الفعال. وايضا يدعون ان الحكومة بكل دولة تستحوذ على ما سرقوه هم واجدادهم بدون وجه حق. وان لهم الحق المطلق فى ممارسة الثقافة المتطرفة التى تدعى ثقافة السادة والعبيد حيث يقوموا أولئك الكفرة بتأليه نفسهم. لكن واقعهم الأليم لا يستمر كثيرا حيث أنه يتراوح من أشلاء ممزقة إلى مصحة الأمراض العقلية. من باب العلم بالشئ: كيف يمكن لجاهل تائه لا يعرف ماذا يفعل منذ بداية حياته إلى نهايتها أن يسمع كلامه أصلا او يؤخذ فى الحسبان؟؟؟
+
+Definition of acceptable praying by [GOD](https://en.wikipedia.org/wiki/Allah) is [legal work](https://github.com/muhamed-hassan/safe_planet/wiki/Legal-working-conditions-globally-as-a-HUMAN) after graduation. This is considered a good deed unlike other bullshit. Use your brain well to reason about anything before accepting it.
+
+أرض الدولة بكل دولة خاضعة لقوانينها القانونية داخل نطاق حدودها واى جماعة إرهابية تأخذ ستار متحضر كشركة خاصة غير قانونية لأنها غير خاضعة لقوانين الدولة القائمة عليها وتعتبر مثل الجماعات الإرهابية المنعزلة التى تفاجئت بالامتداد العمرانى المخطط من قبل الدولة والذي يهدد وجودها عن طريق إعادة استحواذ الدولة لأراضيها.
+
+لا يوجد شئ اسمه شركة خاصة ملك فرد او عائلة (معرصين وحرامية وسحرة بالاساس وسلالة قذرة) او شركة عامة حكومية. المسمى الصحيح هو منشئات اقتصادية خاضعة لقوانين الدولة التى تضمن بقاء الأفراد العاملين بها بشكل أمن لا يهدد استقرارهم وفى المقابل ناتج عمل اولئك الأفراد للمجتمع ككل.
+
+التقديم لأى وظيفة لابد أن يصحبه إجراء اختبارات وظيفية ودرجة مؤهل ملائمة للمتقدم على تلك الوظيفة حتى لو كان مدعوما بتوصية من موظف عامل بتلك المنشئأة و عدم الخضوع لتلك الاختبارات الوظيفية يعتبر فساد ويعبر عن عدم أهلية الموظف بالعمل وفساد الناتج من تلك المنشئات مثلما يحدث فى القطاع الخاص عالميا.
+
+Applying for any job should have a proper screening tests and recognized degree to candidates even if a candidate received a recommendation from an internal employee, otherwise is considered a [corruption](https://en.wikipedia.org/wiki/Corruption) in both the unqualified employee and the entire organisation as it occurs inside the corrupted private sector globally.
+
+للعلم: الشركات الخاصة عالميا تعتبر ظاهرة غير طبيعية يتم القضاء عليها حين التعرف عليها بسبب الأضرار الناتجة عن وجودها والمرتزقة أتباعهم.
+
+**`FYI:`** private sector is considered a [paranormal phenomena](https://en.wikipedia.org/wiki/Paranormal) that is get evaporated upon identification globally due to its severity and their fellow mercenaries.
