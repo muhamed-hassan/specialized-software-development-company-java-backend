@@ -56,3 +56,5 @@ Applying for any job should have a proper screening tests and recognized degree 
 للعلم: الشركات الخاصة عالميا تعتبر ظاهرة غير طبيعية يتم القضاء عليها حين التعرف عليها بسبب الأضرار الناتجة عن وجودها والمرتزقة أتباعهم.
 
 **`FYI:`** private sector is considered a [paranormal phenomena](https://en.wikipedia.org/wiki/Paranormal) that is get evaporated upon identification globally due to its severity and their fellow mercenaries.
+
+Private-sector tribes can hire corrupted people inside some departments within some **governmental or economical entities** globally in an illegal manner due to thier corruption level that reached to terrorism. As security-staff that should be replaced with educated reception department that has the ability to organise the traffic of customers inside a certain organisation to get thier service done in the best way as utilizing [fifo](https://en.wikipedia.org/wiki/FIFO_(computing_and_electronics))-ticketing-system. Also information-technology staff regardless of thier specialization are corrupted by 100% and can contains foreigners that belongs to terror gangs.
