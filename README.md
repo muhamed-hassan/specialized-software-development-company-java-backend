@@ -58,3 +58,11 @@ Applying for any job should have a proper screening tests and recognized degree 
 **`FYI:`** private sector is considered a [paranormal phenomena](https://en.wikipedia.org/wiki/Paranormal) that is get evaporated upon identification globally due to its severity and their fellow mercenaries.
 
 Private-sector tribes can hire corrupted people inside some departments within some **governmental or economical entities** globally in an illegal manner due to thier corruption level that reached to terrorism. As [security-staff](https://github.com/muhamed-hassan/specialized-software-development-company-java-backend/wiki/Whores-of-security-staff) that should be replaced with educated reception department that has the ability to organise the traffic of customers inside a certain organisation to get thier service done in the best way as utilizing [fifo](https://en.wikipedia.org/wiki/FIFO_(computing_and_electronics))-ticketing-system. Also information-technology staff regardless of thier specialization are corrupted by 100% and can contains foreigners that belongs to terror gangs.
+
+***
+
+### Legal aspects in recruitment/hiring:
+
+* Periodical announcements in public channels regarding existing **`open vacancies`** with all details using national TV and radio ... etc. Till [the ministry of manpower](https://github.com/muhamed-hassan/safe_planet/wiki/Manpower-Ministry) become healthy again and do thier job well.
+
+* Having a proper degree as recognized university degree or vocational education specilization, then doing the pre-acceptance tests to check the validity of yourself before final approval to be hired later within [legal circumstances in a stable environment](https://github.com/muhamed-hassan/safe_planet/wiki/Legal-working-conditions-globally-as-a-HUMAN).
