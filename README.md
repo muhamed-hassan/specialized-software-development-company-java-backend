@@ -59,6 +59,8 @@ Applying for any job should have a proper screening tests and recognized degree 
 
 Private-sector tribes can hire corrupted people inside some departments within some **governmental or economical entities** globally in an illegal manner due to thier corruption level that reached to terrorism. As [security-staff](https://github.com/muhamed-hassan/specialized-software-development-company-java-backend/wiki/Whores-of-security-staff) that should be replaced with educated reception department that has the ability to organise the traffic of customers inside a certain organisation to get thier service done in the best way as utilizing [fifo](https://en.wikipedia.org/wiki/FIFO_(computing_and_electronics))-ticketing-system. Also information-technology staff regardless of thier specialization are corrupted by 100% and can contains foreigners that belongs to terror gangs.
 
+There is nothing called [monopoly](https://www.dictionary.com/browse/monopoly) or [competition](https://en.wikipedia.org/wiki/Competition_(economics)) or [slavery](https://en.wikipedia.org/wiki/Slavery) except in private-sector tribes. Why those pitches can not replace it by [cooperation](https://www.dictionary.com/browse/cooperation) and [transparency](https://www.dictionary.com/browse/transparency) ???
+
 ***
 
 ### Legal aspects in recruitment/hiring:
