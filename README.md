@@ -28,7 +28,9 @@
 ***
 ***
 
-![forms-of-business-organization-1](https://user-images.githubusercontent.com/17825804/219615172-0fac2136-06d7-4c4a-b025-8caa79d8d512.png)
+# Green establishment:
+
+![Information technology organizations hirarchy](https://github.com/muhamed-hassan/specialized-software-development-company-java-backend/assets/17825804/d39616db-e65a-4dd3-86f6-d505c358f227)
 
 ***
 
