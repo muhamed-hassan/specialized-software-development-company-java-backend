@@ -70,3 +70,7 @@ There is nothing called [monopoly](https://www.dictionary.com/browse/monopoly) o
 * Periodical announcements in public channels regarding existing **`open vacancies`** with all details using national TV and radio ... etc. Till [the ministry of manpower](https://github.com/muhamed-hassan/safe_planet/wiki/Manpower-Ministry) become healthy again and do thier job well.
 
 * Having a proper degree as recognized university degree or vocational education specilization, then doing the pre-acceptance tests to check the validity of yourself before final approval to be hired later within [legal circumstances in a stable environment](https://github.com/muhamed-hassan/safe_planet/wiki/Legal-working-conditions-globally-as-a-HUMAN).
+
+***
+
+The whores who call themselves business-families (private-sector) along with thier mercenaries stole from the governments, the plans and specifications to initiate corporations to support the surrounding societies by having BOTH university and vocational education graduates under the umbrella of legal employment. Instead of employing the universities graduates as specilized military/police officers and this is not enough by 100%.
