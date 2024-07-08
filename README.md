@@ -72,7 +72,7 @@ There is nothing called [monopoly](https://www.dictionary.com/browse/monopoly) o
 
 ### Legal aspects in recruitment/hiring:
 
-* Periodical announcements in public channels regarding existing **`open vacancies`** with all details using national TV and radio ... etc. Till [the ministry of manpower]([https://github.com/muhamed-hassan/safe_planet/wiki/Manpower-Ministry](https://github.com/muhamed-hassan/hiring-system-example/wiki/Manpower-Ministry)) become healthy again and do thier job well.
+* Periodical announcements in public channels regarding existing **`open vacancies`** with all details using national TV and radio ... etc. Till [the ministry of manpower](https://github.com/muhamed-hassan/hiring-system-example/wiki/Manpower-Ministry) become healthy again and do thier job well.
 
 * Having a proper degree as recognized university degree or vocational education specilization, then doing the pre-acceptance tests to check the validity of yourself before final approval to be hired later within [legal circumstances in a stable environment](https://github.com/muhamed-hassan/safe_planet/wiki/Legal-working-conditions-globally-as-a-HUMAN).
 
