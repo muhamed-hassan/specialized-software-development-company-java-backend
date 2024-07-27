@@ -79,3 +79,8 @@ There is nothing called [monopoly](https://www.dictionary.com/browse/monopoly) o
 ***
 
 The whores who call themselves business-families (private-sector) along with thier mercenaries stole from the governments, the plans and specifications to initiate corporations to support the surrounding societies by having BOTH university and vocational education graduates under the umbrella of legal employment. Instead of employing the universities graduates as specilized military/police officers and this is not enough by 100%.
+
+***
+***
+
+### Please visit this [link](https://github.com/muhamed-hassan/specialized-software-development-company-java-backend/wiki/jokes-of-startups) for jokes around `kids-in-business`
