@@ -85,7 +85,7 @@ The whores who call themselves business-families (private-sector) along with thi
 ***
 ***
 
-### Please visit this [link](https://github.com/muhamed-hassan/specialized-software-development-company-java-backend/wiki/jokes-of-startups) for jokes around `kids-in-business`
+### Please visit this [link](https://github.com/muhamed-hassan/specialized-software-development-company-java-backend/wiki/jokes-of-startups) for jokes around [`kids-in-business`](https://www.youtube.com/watch?v=EhxHV_kWMR4)
 
 ***
 ***
