@@ -33,6 +33,10 @@
 ***
 ***
 
+[**Applied dress code**](https://github.com/muhamed-hassan/self-care/wiki/Clothes).
+
+***
+
 # Green establishment:
 
 ![Information technology organizations hirarchy](https://github.com/muhamed-hassan/specialized-software-development-company-java-backend/assets/17825804/d39616db-e65a-4dd3-86f6-d505c358f227)
