@@ -33,7 +33,7 @@
 ***
 ***
 
-[**Applied dress code**](https://github.com/muhamed-hassan/self-care/wiki/Clothes).
+[**Applied dress code**](https://github.com/muhamed-hassan/self-care/wiki/Clothes) 🌍 ✅.
 
 ***
 
