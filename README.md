@@ -51,6 +51,12 @@
 
 # [`Current status`](https://www.youtube.com/watch?v=EgjECcUip7o) due to existing bullshit.
 
+* [Explanation 1](https://www.youtube.com/watch?v=VRPJqcRz3o0)
+
+* [Explanation 2](https://www.youtube.com/watch?v=EquS-T4qnzA)
+
+* [Explanation 3](https://www.youtube.com/watch?v=Sqzn2n8-a3A)
+
 ***
 ***
 
