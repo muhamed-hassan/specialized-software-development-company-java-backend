@@ -15,7 +15,7 @@
 
 **`Mandatory educational level`** [bachelor degree](https://en.wikipedia.org/wiki/Bachelor%27s_degree) from accredited governmental universities not as uneducated whores and fagots as the case globally.
 
-`Economical entities` that will be established in the future to provide the below functions to the society per country, maybe after 1,000 years or so because of the current mother fuckers globally who do not know how to have a shower properly, shall be named as **`Information Technology Association`** under the supervision of the newly established and on-the-clean-process "**Information Technology Ministry**"
+`Economical entities` that will be established in the future to provide the below functions to the society per country, maybe after 1,000 years or so because of the current mother fuckers globally who do not know how to have a shower properly, shall be named as **`Information Technology Association`** under the supervision of the newly established and on-the-clean-process **"Information Technology Ministry"**.
 
 All employees shall held the same nationality, and the communication between them will be in thier native language mixed with some English as mentioning some technical terminologies. The ministry of information technology shall held responsible about the supervision of those corporates periodically besides the quality level of the given service to thier clients. The UN shall visit those corporates globally periodically to eliminate any violation before its occurrence.
 
