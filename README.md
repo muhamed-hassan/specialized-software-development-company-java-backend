@@ -63,6 +63,8 @@ All employees shall held the same nationality, and the communication between the
 
 * [Explanation 5](https://youtu.be/HrxVZNFx_4M?si=uaW4Mctt_M1eiD0Z)
 
+* [Explanation 6](https://youtu.be/RBU_qIgkVn0?si=1Hllkfj22v84VVWL)
+
 ***
 ***
 
