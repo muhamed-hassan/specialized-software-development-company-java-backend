@@ -23,14 +23,7 @@ All employees shall held the same nationality, and the communication between the
   - [Specialized software development company Java backend](https://github.com/muhamed-hassan/specialized-software-development-company-java-backend/wiki)
   - [Specialized software development company C# backend](https://github.com/muhamed-hassan/specialized-software-development-company-java-backend/wiki/Extras)
   - [Specialized software development company in C++](https://github.com/muhamed-hassan/specialized-software-development-company-java-backend/wiki/Extras-1)
-* [Internal IT Unit](https://github.com/muhamed-hassan/internal-it-unit)
-
-***
-
-## Extras:
 * [Construction of `Internal IT Unit`](https://github.com/muhamed-hassan/internal-it-unit)
-* [Specialized software development company C# backend](https://github.com/muhamed-hassan/specialized-software-development-company-java-backend/wiki/Extras)
-* [Specialized software development company in C++](https://github.com/muhamed-hassan/specialized-software-development-company-java-backend/wiki/Extras-1)
 
 ***
 ***
