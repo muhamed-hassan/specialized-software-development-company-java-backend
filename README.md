@@ -11,7 +11,7 @@
 
 ## Wise usage of information technology theories in a modern civilized society
 
-#### Please visit the wiki for more info https://github.com/muhamed-hassan/specialized-software-development-company-java-backend/wiki
+#### Please visit the [wiki](https://github.com/muhamed-hassan/specialized-software-development-company-java-backend/wiki) for more info
 
 **`Mandatory educational level`** [bachelor degree](https://en.wikipedia.org/wiki/Bachelor%27s_degree) from accredited governmental universities not as uneducated whores and fagots as the case globally.
 
