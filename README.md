@@ -25,7 +25,7 @@ All employees shall held the same nationality, and the communication between the
   - [Software development unit of web‐frontend development](https://github.com/muhamed-hassan/specialized-software-development-company-java-backend/wiki/Extras-2#software-development-unit-of-webfrontend-development)
   - [Software development unit of mobile‐frontend development](https://github.com/muhamed-hassan/specialized-software-development-company-java-backend/wiki/Extras-2#software-development-unit-of-mobilefrontend-development)
   - [Specialized software development company in C++](https://github.com/muhamed-hassan/specialized-software-development-company-java-backend/wiki/Extras-1)
-* [Construction of `Internal IT Unit`](https://github.com/muhamed-hassan/internal-it-unit)
+* [Construction of `Internal IT Unit`](https://github.com/muhamed-hassan/specialized-software-development-company-java-backend/wiki/Extras-3#construction-of-internal-it-unit)
 
 ***
 ***
