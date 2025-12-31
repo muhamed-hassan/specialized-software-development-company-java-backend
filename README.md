@@ -20,7 +20,7 @@
 All employees shall held the same nationality, and the communication between them will be in thier native language mixed with some English as mentioning some technical terminologies. The ministry of information technology shall held responsible about the supervision of those corporates periodically besides the quality level of the given service to thier clients. The UN shall visit those corporates globally periodically to eliminate any violation before its occurrence.
 
 * Software development unit within the below types:
-  - [Specialized software development company Java backend](https://github.com/muhamed-hassan/specialized-software-development-company-java-backend/wiki)
+  - [Specialized software development company Java backend](https://github.com/muhamed-hassan/specialized-software-development-company-java-backend/wiki#organization-chart)
   - [Specialized software development company C# backend](https://github.com/muhamed-hassan/specialized-software-development-company-java-backend/wiki/Extras)
   - [Software development unit of web‐frontend development](https://github.com/muhamed-hassan/specialized-software-development-company-java-backend/wiki/Extras-2#software-development-unit-of-webfrontend-development)
   - [Software development unit of mobile‐frontend development](https://github.com/muhamed-hassan/specialized-software-development-company-java-backend/wiki/Extras-2#software-development-unit-of-mobilefrontend-development)
