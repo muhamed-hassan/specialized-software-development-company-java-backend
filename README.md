@@ -48,6 +48,8 @@ All employees shall held the same nationality, and the communication between the
 
 # [`Current status`](https://www.youtube.com/watch?v=EgjECcUip7o) due to existing bullshit.
 
+### [Introduction](https://youtu.be/6fCBSQjpH8U?si=MzYGJMQRj62rfjZP) to [ceremony](https://youtu.be/dDNMNF2KrYM?si=B1-eiBWomPyUD_Z6) 💋 💘 😻 🥳 🤡 🎠 🌎
+
 * [Explanation 1](https://www.youtube.com/watch?v=VRPJqcRz3o0)
 
 * [Explanation 2](https://www.youtube.com/watch?v=EquS-T4qnzA)
