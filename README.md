@@ -50,7 +50,7 @@ All employees shall held the same nationality, and the communication between the
 
 ## [What the hell](https://youtu.be/JuJSP_wQVio?si=fskozhKzGOyd0_BA) ⁉️ 🤔 😈 ❤️‍🔥 👎 🎠 ⛔️ 🔞
 
-### [Introduction](https://youtu.be/6fCBSQjpH8U?si=MzYGJMQRj62rfjZP) to [ceremony](https://youtu.be/dDNMNF2KrYM?si=B1-eiBWomPyUD_Z6) 💋 💘 😻 🥳 🤡 🎠 🌎 - [ALWAYS 🤭](https://youtu.be/ChC3xRAv_tE?list=RDChC3xRAv_tE) 
+### [Introduction](https://youtu.be/6fCBSQjpH8U?si=MzYGJMQRj62rfjZP) to [ceremony](https://youtu.be/dDNMNF2KrYM?si=B1-eiBWomPyUD_Z6) 💋 💘 😻 🥳 🤡 🎠 🌎 - [ALWAYS 🤭](https://youtu.be/ChC3xRAv_tE?list=RDChC3xRAv_tE) - [SOMETIMES](https://www.youtube.com/watch?v=KhdRvFBrNTQ)
 
 * [Explanation 1](https://www.youtube.com/watch?v=VRPJqcRz3o0)
 
